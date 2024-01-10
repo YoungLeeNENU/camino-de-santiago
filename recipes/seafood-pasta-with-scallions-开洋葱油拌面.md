@@ -40,5 +40,14 @@ When you pour out the oil from the last step, leave some of the oil to make sure
 ### Making the flavored soy bean sauce
 The last step when we fry the seafood, we will leave some of the crust in the pan and we use this pan to make the flavored soy bean sauce. Chop a carrot and celery and onion into dice or little pieces, Put them in the pan and then pour 100ml of water into the pan, then we pour out 200ml of soy bean sauce into the pan and we add some sugar(like 10g or 15g), if you have dried shrimps, you can put some of them into the pan as well, but if you don't it is still good because the crust will provide the seafood flavor. We boil the soy bean sauce for 15 minutes and we filter out the vegetables and the dried shrimps(we won't use them again) in the liquid, and we pour only liquid of flavored soy bean sauce into a bowl. 
 
+![fry the scallions and making the flavored soy bean sauce](./images/step-one-and-three.jpg)
+<center>Fry the scallions and making the flavored soy bean sauce</center>
+
 ### Boil the pasta and the final steps
 Heat up a pot, and boil the pasta(here you don't need salt in the water to boil the pasta), when the pasta is ready, prepare a deep plate, add one large tea spoon of scallions oil at the bottom, one large tea spoon of flavored soy bean sauce in the bottom, 200g of pasta, and mix the pasta, then put some fried scallions on the top, if you have fried seafoods, add the amount of fried seafoods as you want on the pasta and Voilà(you can also have your guest mix the pasta themselves).
+
+![Finish of the pasta](./images/finish.jpg)
+<center>Finish of the pasta</center>
+
+![Linguine al nero di seppia version](./images/squid-pasta.jpg)
+<center>the Linguine al nero di seppia version of the pasta</center>
