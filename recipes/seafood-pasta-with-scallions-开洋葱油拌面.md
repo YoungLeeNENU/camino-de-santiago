@@ -1,7 +1,7 @@
 # Seafood pasta with scallions( 开洋葱油拌面 )
 This pasta is a traditional Chinese dish I made in my Camino de Santiago, and there are some adjustmants because some of the ingredients is not easy to buy in Europe. 
 Here I will provide the Camino version one, but also introduce the difference between the authentic Chinese version.
-This Seafood pasta with scallions is basically a pasta mixed with fried scallions oil and soy bean sauce, in China, it's a local dish which is popular in the east area especially in Shnaghai. And in Shanghai, we called it 葱油拌面(pronounce as cong you ban mian) or 开洋葱油拌面(pronounce as kai yang cong you ban mian), 开洋(pronounce as kai yang) here means dried shrimps, which is a way how Chinese keep the seafood: sun dried them for long term storage. and also it will provide a more compressed flavor in the food.
+This Seafood pasta with scallions is basically a pasta mixed with fried scallions oil and soy bean sauce, in China, it's a local dish which is popular in the east area especially in Shanghai. And in Shanghai, people called it 葱油拌面(pronounce as cong you ban mian) or 开洋葱油拌面(pronounce as kai yang cong you ban mian), 开洋(pronounce as kai yang) here means dried shrimps, which is a way how Chinese keep the seafood: sun dried them for long term storage. and also it will provide a more compressed flavor in the food.
 And in Camino de Santiago, I made this pasta many times for these reasons: the quality of seafood in Spain is great, and this dish you can always control the cost so you can feed many people with this dish, and also for some people based on the vegetarian diet, you can also feed them with the no seafood version.
 
 ## Ingredients
